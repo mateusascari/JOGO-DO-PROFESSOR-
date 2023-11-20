@@ -7,8 +7,7 @@
 
 
 @escola mateus.ascari@escola.pr.gov.br
-
-
+![](https://media.tenor.com/we_DOWnJNZgAAAAd/baby-cry.gif)
 
 
 
